@@ -1,1 +1,2 @@
-Replace this with a link to your a GitHub or social media profile.
+You can connect me through the telegram link.
+"C:\Users\K.Anusha\Desktop\Telegram.lnk"
